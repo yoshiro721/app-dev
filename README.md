@@ -10,8 +10,19 @@
 
 **Emma Swan** is the main character in the show "Once Upon a Time". She is the offspring of White and Prince Charming, who was grown up in the real world and knew nothing about her past. As the so-called "The Savior," Emma has to reverse the curse that has locked all the fairytale characters in Storybrooke. Her journey includes the discovery of her relationship with her parents, her magical abilities, and the part that she is supposed to play in the safety of her loved ones and the enchanted lands.
 
+>*Charateristic:*
+>- Brave and Determined
+>- Independent
+>- Protective
+
+
 ### *Main Antagonist*
 ![image](https://github.com/user-attachments/assets/1ca4ac9b-ee82-4b37-a94f-e8e3e8d8b33c)
 
 
 **The Evil Queen (Regina Mills)** is the starting point of the series’ story being the main antagonist. Fueled by hate and vengeance, she puts a curse on everyone which takes them to Storybrooke. Her i the negative feelings towards Snow White and her ambition of power are the primary factors influencing the main plot of the first few seasons.
+
+>*Charateristic:*
+>- Manipulative
+>- Strategic
+>- Vengeful
