@@ -11,7 +11,7 @@
 **Emma Swan** is the main character in the show "Once Upon a Time". She is the offspring of White and Prince Charming, who was grown up in the real world and knew nothing about her past. As the so-called "The Savior," Emma has to reverse the curse that has locked all the fairytale characters in Storybrooke. Her journey includes the discovery of her relationship with her parents, her magical abilities, and the part that she is supposed to play in the safety of her loved ones and the enchanted lands.
 
 >*Charateristic:*
->- Brave and Determined
+>- Brave 
 >- Independent
 >- Protective
 
